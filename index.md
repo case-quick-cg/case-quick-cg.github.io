@@ -13,10 +13,10 @@ Our current study is: [The Character of God](https://bibleproject.com/explore/ca
 
 ## Upcoming Gatherings
 
-Date | Host | Address | Study | Potluck
----------------------------------------
-3/23 | Cases     | 855 Arbor Rd, Menlo Park | [God Is Faithful](https://bibleproject.com/explore/video/faithful/) | Pasta / Italian
-4/6  | Thompsons | 2713 Roosevelt Ave, Redwood City | Maundy Thursday | TBD
-4/20 | TBD       | TBD | TBD | TBD
-5/4  | TBD       | TBD | TBD | TBD
-5/18 | TBD       | TBD | TBD | TBD
+| Date | Host | Address | Study | Potluck|
+|------|------|---------|-------|--------|
+| 3/23 | Cases | 855 Arbor Rd, Menlo Park | [God Is Faithful](https://bibleproject.com/explore/video/faithful/) | Pasta / Italian |
+| 4/6  | Thompsons | 2713 Roosevelt Ave, Redwood City | Maundy Thursday | TBD |
+| 4/20 | TBD | TBD | TBD | TBD |
+| 5/4  | TBD | TBD | TBD | TBD |
+| 5/18 | TBD | TBD | TBD | TBD |
