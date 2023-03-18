@@ -1,3 +1,7 @@
+---
+title: ''
+---
+
 ## Basic Information
 
 We are a community group of [Grace Presbyterian Church](https://gracepres.com/) that meets every other week in Palo Alto and Menlo Park. The co-leaders of the group of Carl and Ruth Case and Jon and Allison Quick.
