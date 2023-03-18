@@ -1,4 +1,5 @@
 ## Basic Information
+
 We are a community group of [Grace Presbyterian Church](https://gracepres.com/) that meets every other week in Palo Alto and Menlo Park. The co-leaders of the group of Carl and Ruth Case and Jon and Allison Quick.
 
 We rotate meeting locations on Thursday nights from 5:30-7:30pm. The rough schedule is:
@@ -11,6 +12,7 @@ Kids are welcome! Many of our CG regulars have children ages 1-4. We try to prov
 Our current study is: [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/).
 
 ## Upcoming Gatherings
+
 Date | Host | Address | Study | Potluck
 ---------------------------------------
 3/23 | Cases     | 855 Arbor Rd, Menlo Park | [God Is Faithful](https://bibleproject.com/explore/video/faithful/) | Pasta / Italian
