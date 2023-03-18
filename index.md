@@ -24,3 +24,8 @@ Our current study is: [The Character of God](https://bibleproject.com/explore/ca
 | 4/20 | TBD | TBD | TBD | TBD |
 | 5/4  | TBD | TBD | TBD | TBD |
 | 5/18 | TBD | TBD | TBD | TBD |
+
+## Contact
+For any questions about our CG, you can email Carl and Ruth at `email1` and `email2`.
+
+The mailing list for CG is `listemail` -- email one of us if you would like to be added.
