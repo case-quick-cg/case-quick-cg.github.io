@@ -13,17 +13,19 @@ We rotate meeting locations on Thursday nights from 5:30-7:30pm. The rough sched
 
 Kids are welcome! Many of our CG regulars have children ages 1-4. We try to provide a play area for the kids and rotate off checking in on them. We also simply embrace the chaos of gathering with small children.
 
-Our current study is: [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/).
+Our previous study was [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/), and we plan to start a new study after Easter.
 
 ## Upcoming Gatherings
 
 | Date | Host | Address | Study | Potluck|
 |------|------|---------|-------|--------|
-| 3/23 | Cases | 855 Arbor Rd, Menlo Park | [God Is Faithful](https://bibleproject.com/explore/video/faithful/) | Pasta / Italian |
-| 4/6  | Thompsons | 2713 Roosevelt Ave, Redwood City | Maundy Thursday | TBD |
+| 4/6  | Cases | 855 Arbor Rd, Menlo Park | Maundy Thursday: Reading and Washing of Feet | Easter Brunch |
 | 4/20 | TBD | TBD | TBD | TBD |
 | 5/4  | TBD | TBD | TBD | TBD |
 | 5/18 | TBD | TBD | TBD | TBD |
+
+## Past Studies
+- Winter 2023: [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/)
 
 ## Contact
 For any questions about our CG, you can email Carl and Ruth at `cbcase@gmail.com` and `natalieruthmarks@gmail.com`.
