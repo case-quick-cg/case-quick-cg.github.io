@@ -13,16 +13,18 @@ We rotate meeting locations on Thursday nights from 5:30-7:30pm. The rough sched
 
 Kids are welcome! Many of our CG regulars have children ages 1-4. We try to provide a play area for the kids and rotate off checking in on them. We also simply embrace the chaos of gathering with small children.
 
-Our previous study was [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/), and we plan to start a new study after Easter.
+Our current study is the book of Revelation ([part 1](https://bibleproject.com/explore/video/revelation-1-11/) and [part 2](https://bibleproject.com/explore/video/revelation-12-22/)), and it will run through the end of the school year. Past studies are listed below.
 
 ## Upcoming Gatherings
 
 | Date | Host | Address | Study | Potluck|
 |------|------|---------|-------|--------|
-| 4/6  | Cases | 855 Arbor Rd, Menlo Park | Maundy Thursday: Reading and Washing of Feet | Easter Brunch |
-| 4/20 | TBD | TBD | TBD | TBD |
-| 5/4  | TBD | TBD | TBD | TBD |
-| 5/18 | TBD | TBD | TBD | TBD |
+| 4/20 | Cases | 855 Arbor Rd, Menlo Park | [Revelation 1-11](https://bibleproject.com/explore/video/revelation-1-11/) | TBD |
+| 5/4  | TBD | TBD | [Revelation 1-11](https://bibleproject.com/explore/video/revelation-1-11/) | TBD |
+| 5/18 | TBD | TBD | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | TBD |
+| 6/1  | TBD | TBD | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | TBD |
+| July Gathering | TBD | TBD | TBD | TBD |
+| August Gathering | TBD | TBD | TBD | TBD |
 
 ## Past Studies
 - Winter 2023: [The Character of God](https://bibleproject.com/explore/category/character-of-god-series/)
