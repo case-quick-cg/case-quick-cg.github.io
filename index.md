@@ -19,7 +19,7 @@ Our current study is the book of Revelation ([part 1](https://bibleproject.com/e
 
 | Date | Host | Address | Study | Potluck|
 |------|------|---------|-------|--------|
-| 4/20 | Cases | 855 Arbor Rd, Menlo Park | [Revelation 1-11](https://bibleproject.com/explore/video/revelation-1-11/) | TBD |
+| 4/20 | Cases | 855 Arbor Rd, Menlo Park | [Revelation 1-11](https://bibleproject.com/explore/video/revelation-1-11/) | Grill / Asian |
 | 5/4  | TBD | TBD | [Revelation 1-11](https://bibleproject.com/explore/video/revelation-1-11/) | TBD |
 | 5/18 | TBD | TBD | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | TBD |
 | 6/1  | TBD | TBD | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | TBD |
