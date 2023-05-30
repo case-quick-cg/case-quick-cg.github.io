@@ -19,8 +19,7 @@ Our current study is the book of Revelation ([part 1](https://bibleproject.com/e
 
 | Date | Host | Address | Study | Potluck|
 |------|------|---------|-------|--------|
-| 5/18 | Javadis | 764 W California Way, Woodside | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | Taco Bar |
-| 6/1  | Cases | 855 Arbor Rd, Menlo Park | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | TBD |
+| 6/1  | Cases | 855 Arbor Rd, Menlo Park | [Revelation 12-22](https://bibleproject.com/explore/video/revelation-12-22/) | BBQ / Grill |
 | July Gathering | TBD | TBD | TBD | TBD |
 | August Gathering | TBD | TBD | TBD | TBD |
 
