@@ -13,12 +13,11 @@ We meet on Thursday nights from 5:30-7:30pm, usually every other week. The rough
 
 Kids are welcome! Many of our CG regulars have children ages 1-4. We try to provide a play area for the kids and rotate off watching them. We also simply embrace the chaos of gathering with small children.
 
-
 ## Fall 2023 Schedule
 
 | Date | Host | Kids Volunteer | Address | Study | Potluck|
 |------|------|----------------|---------|-------|--------|
-| 8/31  | Cases | - | 855 Arbor Rd, Menlo Park | Psalm TBD | - |
+| 8/31  | Cases | - | 855 Arbor Rd, Menlo Park | Psalm TBD | Labor Day |
 | 9/7   | Cases | - | 855 Arbor Rd, Menlo Park | TBD | - |
 | 9/28  | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
 | 10/12 | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
