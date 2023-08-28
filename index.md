@@ -16,16 +16,16 @@ Kids are welcome! Many of our CG regulars have children ages 1-4. We try to prov
 
 ## Fall 2023 Schedule
 
-| Date | Host | Address | Study | Potluck|
-|------|------|---------|-------|--------|
-| 8/31  | Cases | 855 Arbor Rd, Menlo Park | Psalm TBD | - |
-| 9/7   | Cases | 855 Arbor Rd, Menlo Park | TBD  | - |
-| 9/28  | TBD   | 855 Arbor Rd, Menlo Park | TBD  | - |
-| 10/12 | TBD   | 855 Arbor Rd, Menlo Park | TBD  | - |
-| 10/26 | TBD   | 855 Arbor Rd, Menlo Park | TBD  | - |
-| 11/9  | TBD   | 855 Arbor Rd, Menlo Park | TBD  | - |
-| 11/30 | TBD   | 855 Arbor Rd, Menlo Park | TBD | - |
-| 12/14 | TBD   | 855 Arbor Rd, Menlo Park | TBD | - |
+| Date | Host | Kids Volunteer | Address | Study | Potluck|
+|------|------|----------------|---------|-------|--------|
+| 8/31  | Cases | - | 855 Arbor Rd, Menlo Park | Psalm TBD | - |
+| 9/7   | Cases | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 9/28  | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 10/12 | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 10/26 | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 11/9  | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 11/30 | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
+| 12/14 | TBD   | - | 855 Arbor Rd, Menlo Park | TBD | - |
 
 ## Past Studies
 - The Book of Revelation ([part 1](https://bibleproject.com/explore/video/revelation-1-11/) and [part 2](https://bibleproject.com/explore/video/revelation-12-22/))
